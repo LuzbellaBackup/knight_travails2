@@ -1,8 +1,7 @@
-# knight_travails2
+  ／l、     Meow
+（ﾟ､ ｡７
+  l、ﾞ~ヽ
+  じしf_,)ノ 
 
-uwu
-uwuuwu
-uwuuwuuwuuwu
-uwuuwuuwuuwuuwuuwuuwuuwu
-uwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwu
-uwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwu
+I lov U all and if u were expecting some kind of guide 
+haha lol
