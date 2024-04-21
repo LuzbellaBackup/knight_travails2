@@ -1,1 +1,8 @@
 # knight_travails2
+
+uwu
+uwuuwu
+uwuuwuuwuuwu
+uwuuwuuwuuwuuwuuwuuwuuwu
+uwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwu
+uwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwuuwu
